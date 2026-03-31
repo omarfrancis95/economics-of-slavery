@@ -1,4 +1,3 @@
-# economics-of-slavery
 
 # Slavery and Industrial Development in the United States
 
